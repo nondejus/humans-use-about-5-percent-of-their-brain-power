@@ -1,1 +1,4 @@
 # humans-use-about-5-percent-of-their-brain-power
+
+# humanity
+https://en.wikipedia.org/wiki/Humanity_(virtue)
